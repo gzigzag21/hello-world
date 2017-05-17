@@ -2,4 +2,4 @@
 
 Hello Meatbags!
 
-Fine! I'll build my own amusement park...with hookers...and blackjack!
+Yeah?! Well, I'm gonna go build my own theme park...with blackjack...and hookers! In fact, forget the park!
